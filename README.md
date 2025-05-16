@@ -11,6 +11,6 @@ AVERTISSEMENT : Ces contrat ont été rédigés par mon avocat spécialisé en d
 
 AVERTISSEMENT : Ces contrats ont été rédigés en France, pour le droit français. 
 
-AVERTISSEMENT : Ces documents sont fournis à titre d'opinion personnelle et ne doivent PAS être considérés comme un avis juridique ; pour obtenir un avis juridique, vous devez consulter un avocat agréé dans votre juridiction.
+AVERTISSEMENT : Ces documents sont fournis à titre d'opinion personnelle et ne doivent PAS être considérés comme un avis juridique ; pour obtenir un avis juridique, consultez un avocat.
 
-NOTE : La relecture de mes ébauches par mon avocat m'a coûté 500 €. Je les fournis ici à titre gratuit. TOute contribution serait toutefois fortement appréciée.
+NOTE : La relecture et réécriture de deux contrats par mon avocat m'a coûté 500 €. Je les fournis ici à titre gratuit. Toute contribution serait toutefois fortement appréciée.
